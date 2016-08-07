@@ -1,0 +1,1 @@
+# EDITED-woocommerce-auto-added-coupons
